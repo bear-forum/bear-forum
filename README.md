@@ -7,8 +7,8 @@
 
 ### 👋 About Me
 - 🎓 **Computer Science Student** @ IPS Academy IES, Indore, India
--
--
+- 💥 *Understanding Deep Human Emotions with tech*
+- 🎨 Crafting **Art to express**
 -
 -
 
